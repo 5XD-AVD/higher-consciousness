@@ -1,6 +1,6 @@
-# higher-consciousness
-higher consciousness
-Higher consciousness!
+# higher-consciousnes
+higher consciousnes
+Higher consciousnes!
 
 Truth is the basis for creating. Everyone wants freedom, happiness, love, health, but many people ignore the truth to achieve this. 
 This truth lies within ourselves and the environment around us. 
